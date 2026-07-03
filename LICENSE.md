@@ -1,4 +1,4 @@
-#  
+#  Experience math for brainrots like never before with math for brainrots Scripts ultimate, the #1 Script. Includes one-hit kill and auto-upgrade for
 
 
 
